@@ -1,0 +1,1 @@
+The Aras Sea is an inland sea located between [[Havaly Union|Havaly]], [[Helsk]], and [[Nauuis Kingdom|Nauuis]]. It is a major vector for trade, allowing boat access to the whole west half of [[Golloc]].

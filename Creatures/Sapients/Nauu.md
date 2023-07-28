@@ -1,0 +1,7 @@
+Nauu are chitinous sapients. Nauu are mostly covered in chitin, with some soft fleshy areas, particularly around the joints and some spaces on the torso. Nauu have large compound eyes, two small mandibles, antennae, two main arms, two vestigial arms, two vestigial wings, and wire-esque pseudo-hair. Nauu mouths are vertical slits. Nauu tend to be a bit shorter than most of the other sapients. Nauu are omnivorous.
+
+Nauu are creatures that greatly desire elegance. This societal desire has led to a great number of skilled Nauu artists of all kinds - painters, sculptors, writers, actors, and metalworkers, to name a few. Due to the importance such art has in Nauu society, they are the favored of [[Oros]], and gain a great number of the liar's charms.
+
+Most Nauu, however, cannot afford or are not skilled enough to devote themselves purely to art. Among these Nauu, smaller, humbler kinds of art are pervasive. A table set just right, the smell of fresh baked bread, a perfectly refined recipe, a neatly trimmed garden - there are many ways to take joy in beautiful things without formal training or talent in the fine arts. Some even take joy in more destructive or vandalistic artistic expression, especially younger Nauu and those dissatisfied with the current world. It's hard to say how many, but at least a few Nauu have gained charms from Oros after vandalizing government structures.
+
+[[Nauuis Kingdom|Nauuis]] is the Nauu homeland. The Nauu who live in Nauuis tend to associate more with the city or local area within Nauuis than the country as a whole.

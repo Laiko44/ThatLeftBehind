@@ -1,0 +1,9 @@
+---
+alias: Ansk
+---
+
+Anske are sapients designed to live in tune with stone and metal. Substantially shorter than other sapients and sensitive to light and vibrations, the Anske are at home in caves and close to the ground. Anske are grubby, pale creatures, with 4 arms, large eyes, no hair, and pointed misshapen ears, which vary wildly between individuals. Anske also tend to have a couple of horns on the top of their heads. Anske usually wrap themselves in a large amount of cloth and metal before heading outside, to avoid sunburns. It can be hard to recognize a specifc Ansk when they are bundled up like this, even for other Anske - As such, Anske tend to wear a medallion with their name on it in some fashion whenever they go outside. Anske are omnivorous, to such an extent that many joke they eat rocks.
+
+Among the Anske are a great number of skilled farmers and miners. The farmers tend to grow cave creatures and plants, such as funguses and cave fish. The miners create elaborate houses in their cave systems, and excavate a large amount of metal. The Anske themselves use the metal for tools and machinery, but seem relatively uninterested in fine craftsmanship. Only a few great Ansk craftsmen have appeared over the years, and they are mostly remembered by those outside their own society. On the other hand, the Anske take great pride in the books, plays, and other writing. Ansk writing is known for many great philosophical works, many of which are infamous for being difficult to get through. In recent years, their writing scene has drawn inspiration from others - many books more friendly to casual readers have been released.
+
+[[Helsk]] is the Ansk homeland, and the majority of Anske live there. Anske have spread out slowly over the centuries, and now Asnk settlements can be found in most mountainous regions.

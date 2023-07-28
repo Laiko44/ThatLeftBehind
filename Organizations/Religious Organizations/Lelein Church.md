@@ -1,0 +1,9 @@
+Lelein Church is a religious organization devoted to [[Laikodaemon]] Based in [[Democratic Theocracy of Velast|Velast]].
+
+One of Lelein's core ideals is seperation of government, business, and religion. Nevertheless, the Church has branches that work in each of these sectors. These sections of the church are set up to compete against each other, so that when one branch does poorly the others do well, and when one does well the others do poorly. This is an imperfect system, and the leaders of Lelein know it.  The Knives of Lelein, a task force that works directly under the prophets, is intended to find and weed out corruption in the church. The Knives have been still as of late, and whether that is a good sign or not is yet to be seen.
+
+Lelein's business branch embraces Laikodaemon's aspect of trade, and functions as a massive bank and shipping company headquartered in the [[Laiko (City)|city of Laiko]]. Lelein's logo, stamped on the side of crates they've shipped, is a common sight in Velast and beyond.
+
+Lelein's government branch is the head of the government of Velast. It is devoted to Laikodaemon's aspect of orderly law, and pushes for laws that tighten the government's control on the chaos of Velast.
+
+Lelein's religion branch manages a large number of churches to Laikodaemon throughout Velast. Outside of sermons and religious guidance, they offer a number of services. Most infamous of those services is the open offer of the church to arbitrate a contract with Laikodaemon himself for any client. Most commonly used is the offer to arbitrate any minor deal between individuals or businesses, making them legally binding contracts.

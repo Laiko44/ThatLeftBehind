@@ -1,0 +1,1 @@
+The Iron Lake is a large body of water located in the [[Erestal Empire]]. Water flows into the Iron Lake from the mountains in the northeast, and water flows out to the west, toward the ocean, and to the southeast, toward [[Aras Sea]].

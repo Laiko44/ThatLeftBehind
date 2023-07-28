@@ -1,0 +1,6 @@
+The forgotten God of Soul falls on the axis of Chaos and Reality.
+It was the designer of [[Humans]].
+
+The forgotten God of Soul is the source of souls and the arbiter of the cycle of life and death. It is comprised of an infinite number of minds, an infinite fraction of which is assigned to each soul. None of them agree on how the cycle should run. Since each mind has effectively no power, nothing ever gets done, and the cycle runs along in a rough approximation of the average consensus. The forgotten god of soul cannot effectively grant power to anyone. It is possible to project ones mind into its realm, the ethereal plane, by way of one of its demigods and a ritual. The ethereal plane is exceedingly dangerous, and an unprepared mind can be ripped apart with no warning.
+
+The forgotten god of Soul has very many demigods. All of them live in the ethereal plane. They watch over the flow of souls through the ethereal plane, keeping the cycle running smoothly while the god itself eternally argues with itself. They are also quite easy to bribe if you have the right currency. Bribes are required for ressurection and for visiting the ethereal plane. These demigods are commonly called Ferrymen.
